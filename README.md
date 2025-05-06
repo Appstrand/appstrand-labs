@@ -1,1 +1,0 @@
-# appstrand-labs
